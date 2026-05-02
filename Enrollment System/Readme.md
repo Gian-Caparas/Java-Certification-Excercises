@@ -1,0 +1,1 @@
+![alt text](<Screenshot_20260501_172927_Samsung Browser.jpg>)
